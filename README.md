@@ -86,3 +86,8 @@ Implementacion en un registro login
 <img width="1353" height="687" alt="image" src="https://github.com/user-attachments/assets/54de4333-7fb0-4b83-80b2-8d7de65aff54" />
 
 
+
+https://github.com/user-attachments/assets/7fd1e8a2-5a49-471b-8bb2-1623f28cde3e
+
+
+
